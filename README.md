@@ -31,4 +31,4 @@
 综上，针对“日本AV免费”关键词的内容优化，需兼顾关键词精准覆盖、内容丰富权威与用户体验良好。通过推荐正版资源、传授安全观影技巧及完善分类导航，满足用户多层次需求，助力网站排名提升。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtnnn2611/19000 ）</span>
